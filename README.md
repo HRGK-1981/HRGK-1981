@@ -2,7 +2,7 @@
 - 👀 I’m interested in maths, science, and soccer
 - 🌱 I’m currently learning how to create a software, how to repair mobiles, and trying to build a business
 - 💞️ I’m looking to collaborate on SagarisAI and Tomo Chan
-- 📫 How to reach me: haroldrajeshgeorge.kulangara@gmail.com
+- 📫 How to reach me: haroldrajeshgeorge.kulangara@gmail.com or hrgk1981@gmail.com
 - ⚡ Fun fact: i play soccer, i do maths, i come from a buisness background, my great grandparents from both sides are natural farmers
 
 <!---
